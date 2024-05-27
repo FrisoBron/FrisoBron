@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FrisoBron
+- 👀 I’m interested in Lorenz Girgis
+- 🌱 I’m currently learning The Girgis Family Tree
+- 💞️ I’m looking to collaborate on Movies
+- 📫 How to reach me Discord
+- 😄 Pronouns: she/her
+- 
